@@ -1,0 +1,1 @@
+// Código de la tienda actualizado con diseño tecnológico y colorido
